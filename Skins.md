@@ -1,4 +1,4 @@
-# Skins i use
+# Carbon's cool skins list
 
 # [- Charbonizard -](https://carbon.s-ul.eu/X0iDNZNc)
 ![](https://osu.ppy.sh/ss/15249073/4ef1)
@@ -20,3 +20,6 @@
 
 # [ - bloo & v1.1 - ](https://carbon.s-ul.eu/EMznCFWS)
 ![](https://cdn.discordapp.com/attachments/400739804280520706/769951208919269406/9f73.png)
+
+# [- Zane -](https://drive.google.com/uc?export=download&id=156aZBGXt-pCmH09BifA29C_15IZauCFt)
+![](https://osu.ppy.sh/ss/15769240/0e5e)
