@@ -24,3 +24,12 @@
 
 # [- Zane -](https://drive.google.com/uc?export=download&id=156aZBGXt-pCmH09BifA29C_15IZauCFt)
 ![](https://cdn.discordapp.com/attachments/400739804280520706/795559634022432798/screenshot052.jpg)
+
+# [- azr8 & dsgfnjdsf 3 -](https://carbon.s-ul.eu/yvtmvM3T)
+![](https://cdn.discordapp.com/attachments/400739804280520706/796638884258906122/screenshot056.jpg)
+
+# [- azr8 & dsgfnjdsf 2 -](https://carbon.s-ul.eu/pGfgie3m)
+![](https://cdn.discordapp.com/attachments/400739804280520706/796638891347410974/screenshot057.jpg)
+
+# [- Aireu & Cookiezi Seoul v9 Personal Edit -](https://carbon.s-ul.eu/57zK8nHv)
+![](https://cdn.discordapp.com/attachments/400739804280520706/796638898478514196/screenshot058.jpg)
