@@ -33,3 +33,8 @@
 
 # [- Aireu & Cookiezi Seoul v9 Personal Edit -](https://carbon.s-ul.eu/57zK8nHv)
 ![](https://cdn.discordapp.com/attachments/400739804280520706/796638898478514196/screenshot058.jpg)
+
+# [-  ☾ -Wolfy- ☽ 『Stella v1.0』 -](https://carbon.s-ul.eu/YSwz3y82)
+![](https://i.imgur.com/3cEemIL.jpeg)
+
+
