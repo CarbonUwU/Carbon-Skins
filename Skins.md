@@ -37,4 +37,7 @@
 # [-  ☾ -Wolfy- ☽ 『Stella v1.0』 -](https://carbon.s-ul.eu/YSwz3y82)
 ![](https://i.imgur.com/3cEemIL.jpeg)
 
+# [- #Aoki [1.1] (Vaxei) -](https://carbon.s-ul.eu/upObdpl6)
+![](https://i.imgur.com/MA40ZBd.jpeg)
+
 
