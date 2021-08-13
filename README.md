@@ -46,3 +46,6 @@
 
 # [- robloxxa & Aristia_YellowCursor -](https://carbon.s-ul.eu/qIlGafmh)
 ![](https://i.imgur.com/2ADAYCD.jpg)
+
+# [- FGSky - Stoof Pro Skin -](https://carbon.s-ul.eu/5lCBwGo0)
+![](https://confighub.photos/images/cwuSzctVBFvpR4dCu005FdEeO.jpg)
