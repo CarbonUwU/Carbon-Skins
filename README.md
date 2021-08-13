@@ -49,3 +49,6 @@
 
 # [- FGSky - Stoof Pro Skin -](https://carbon.s-ul.eu/5lCBwGo0)
 ![](https://confighub.photos/images/cwuSzctVBFvpR4dCu005FdEeO.jpg)
+
+# [- YokesPai & Cookiezi Same+ -](https://carbon.s-ul.eu/9UTvfk0W)
+![](https://confighub.photos/images/HM8jFL0htyowMtmG9XRIFQVGE.jpg)
