@@ -52,3 +52,6 @@
 
 # [- YokesPai & Cookiezi Same+ -](https://carbon.s-ul.eu/9UTvfk0W)
 ![](https://confighub.photos/images/HM8jFL0htyowMtmG9XRIFQVGE.jpg)
+
+# [- Yasen & MC.exe -](https://carbon.s-ul.eu/0LJQAKfV)
+![](https://shibe.host/aPuYNurfGrzg/direct)
