@@ -55,3 +55,24 @@
 
 # [- Yasen & MC.exe -](https://carbon.s-ul.eu/0LJQAKfV)
 ![](https://shibe.host/aPuYNurfGrzg/direct)
+
+# [- Andros -](https://shibe.host/A0IgkLe4JS2z)
+![](https://shibe.host/wzjlyU5owvJ1/direct)
+
+# [- Azer8dawn -](https://drive.google.com/file/d/1oSNNzBQZ7ovCk0XKNE1ntfR7yGpHoCws/view)
+![](https://shibe.host/W7qD3qrcpvLL/direct)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
