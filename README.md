@@ -10,8 +10,7 @@
 ### [***Cursor***](https://drive.google.com/file/d/1dr6odscNxkmFouxM1vcEslHvbfl6gC7N/view)
 ![](https://osu.ppy.sh/ss/15249080/5ea2)
 
-# [- n0ah SkinMix Edit -](https://n0ah.s-ul.eu/aN3oFaLQ)
-# [- n0ah SkinMix Tourney -](https://n0ah.s-ul.eu/MSn2q7pz)
+# [- n0ah SkinMix Edit -](https://n0ah.s-ul.eu/aN3oFaLQ) | [- n0ah SkinMix Tourney -](https://n0ah.s-ul.eu/MSn2q7pz)
 ![](https://cdn.discordapp.com/attachments/400739804280520706/795560666764410900/screenshot053.jpg)
 
 # [- Recia & froooon v21.4 -](https://carbon.s-ul.eu/sj9LZ6N6)
@@ -62,7 +61,7 @@
 # [- Azer8dawn -](https://drive.google.com/file/d/1oSNNzBQZ7ovCk0XKNE1ntfR7yGpHoCws/view)
 ![](https://shibe.host/W7qD3qrcpvLL/direct)
 
-# [- Azer8dawn -](https://drive.google.com/file/d/1_4jNv3fSOmWaA-FRaA-O5W6e2XzpwSVF/view)
+# [- CharleLee (EZ RedHunter) -](https://drive.google.com/file/d/1_4jNv3fSOmWaA-FRaA-O5W6e2XzpwSVF/view)
 ![](https://shibe.host/ruLL7fMgEh7J/direct)
 
 
