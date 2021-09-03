@@ -64,6 +64,9 @@
 # [- CharleLee (EZ RedHunter) -](https://drive.google.com/file/d/1_4jNv3fSOmWaA-FRaA-O5W6e2XzpwSVF/view)
 ![](https://shibe.host/ruLL7fMgEh7J/direct)
 
+# [- CharleLee (EZ RedHunter) -](https://drive.google.com/file/d/1qIgLD4KaGMw0Y3gp22Gr1SWYGsmiXE3G/view)
+![](https://i.imgur.com/vmrCkzD.jpeg)
+
 
 
 
