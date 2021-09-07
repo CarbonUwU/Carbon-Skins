@@ -70,6 +70,11 @@
 # [- BubbleGum -](https://drive.google.com/file/d/1w_Yrn1p0h01Q5us7u9xdclvIVOaTEL1I/view)
 ![](https://i.imgur.com/DEpR94q.jpeg)
 
+# [- # BTMC   ⌞Freedom Dive  ↓⌝ XN Ver. -](https://drive.google.com/file/d/1-7Tdzu07kjDgtjZnnZquFEXC2A29rUjz/view)
+![](https://i.imgur.com/CpHhfT4.png)
+
+# [- # BTMC   ⌞Freedom Dive  ↓⌝  -](https://drive.google.com/file/d/1M44T3VRUKPagFyuWFSyWESrJHHmhTk55/view)
+![](https://shibe.host/HKZEfZaKuLMu/direct)
 
 
 
