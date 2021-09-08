@@ -3,9 +3,6 @@
 <br>
 <br>
 
-# [- Charbonizard -](https://carbon.s-ul.eu/X0iDNZNc)
-![](https://osu.ppy.sh/ss/15249073/4ef1)
-
 # [- Uberlegen Skin beta9 -](https://carbon.s-ul.eu/YqKdrqAz)
 ### [***Cursor***](https://drive.google.com/file/d/1dr6odscNxkmFouxM1vcEslHvbfl6gC7N/view)
 ![](https://osu.ppy.sh/ss/15249080/5ea2)
@@ -75,6 +72,15 @@
 
 # [- # BTMC   ⌞Freedom Dive  ↓⌝  -](https://drive.google.com/file/d/1M44T3VRUKPagFyuWFSyWESrJHHmhTk55/view)
 ![](https://shibe.host/HKZEfZaKuLMu/direct)
+
+# [- badeu -](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
+![](https://i.imgur.com/IsMr3fQ.png)
+
+# [- EzChamp (-GN) -](https://gerwi2.s-ul.eu/DArTruX7)
+![](https://i.imgur.com/OLvRqjS.png)
+
+# [- BubbleMan 17.04.11 -](https://drive.google.com/file/d/1XAecXF8VpwXmIWQ89RJMH5ZWKp75Y1ZL/view)
+![](https://i.imgur.com/WceSsox.jpeg)
 
 
 
