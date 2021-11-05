@@ -82,9 +82,8 @@
 # [- BubbleMan 17.04.11 -](https://drive.google.com/file/d/1XAecXF8VpwXmIWQ89RJMH5ZWKp75Y1ZL/view)
 ![](https://i.imgur.com/WceSsox.jpeg)
 
-
-
-
+# [- - [RK] - Kingling - Silver -](https://www.mediafire.com/file/acuvt3sw905lw2a/-_%255BRK%255D_-_Kingling_-_Silver.osk/file)
+![](https://i.imgur.com/GNwj0zu.jpeg)
 
 
 
