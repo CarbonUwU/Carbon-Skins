@@ -85,8 +85,8 @@
 # [- - [RK] - Kingling - Silver -](https://www.mediafire.com/file/acuvt3sw905lw2a/-_%255BRK%255D_-_Kingling_-_Silver.osk/file)
 ![](https://i.imgur.com/GNwj0zu.jpeg)
 
-
-
+# [- # KHAN MIX # -](https://carbon.s-ul.eu/xWyqyymI)
+![](https://i.imgur.com/ISnNQsF.jpeg)
 
 
 
