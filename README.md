@@ -1,5 +1,5 @@
 # **Carbon's cool skins list ✨**
-### Current skin folder :[ **90Go | 1.9K Skins** ](https://carbon.has-no-bra.in/54wZxuGp8.gif)
+### Current skin folder :[ **90Go | 1.9K Skins** ](https://shibe.host/JvKx2GJX2c3D/direct)
 <br>
 <br>
 
