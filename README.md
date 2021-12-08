@@ -92,7 +92,7 @@
 #### [Alt link if dead](https://carbon.s-ul.eu/KXCyJbu4)
 ![](https://i.imgur.com/ISnNQsF.jpeg)
 
-# [- Ceptin2018 -](https://circle-people.com/wp-content/Skins/-GN/-GN%202017-09-16.osk)
+# [- -GN 2017.09.16 -](https://circle-people.com/wp-content/Skins/-GN/-GN%202017-09-16.osk)
 #### [Alt link if dead](https://carbon.s-ul.eu/ILc8F3eb)
 ![](https://i.imgur.com/H7WU9n8.jpeg)
 
