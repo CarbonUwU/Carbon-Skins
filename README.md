@@ -4,7 +4,7 @@
 <br>
 
 # [- Uberlegen Skin beta9 -](https://carbon.s-ul.eu/YqKdrqAz)
-### [***Cursor***](https://drive.google.com/file/d/1dr6odscNxkmFouxM1vcEslHvbfl6gC7N/view)
+### [***Cursor***](https://drive.google.com/file/d/1dr6odscNxkmFouxM1vcEslHvbfl6gC7N/view) | [***Alt Link***](https://shibe.host/QcHtrotNDXRK/direct) - [***2***](https://i.imgur.com/JO8Qei4.png)
 ![](https://osu.ppy.sh/ss/15249080/5ea2)
 
 # [- n0ah SkinMix Edit -](https://n0ah.s-ul.eu/aN3oFaLQ) | [- n0ah SkinMix Tourney -](https://n0ah.s-ul.eu/MSn2q7pz)
@@ -92,6 +92,9 @@
 #### [Alt link if dead](https://carbon.s-ul.eu/KXCyJbu4)
 ![](https://i.imgur.com/ISnNQsF.jpeg)
 
+# [- Ceptin2018 -](https://circle-people.com/wp-content/Skins/-GN/-GN%202017-09-16.osk)
+#### [Alt link if dead](https://carbon.s-ul.eu/ILc8F3eb)
+![](https://i.imgur.com/H7WU9n8.jpeg)
 
 
 
