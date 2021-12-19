@@ -99,6 +99,7 @@
 # [- Dialga & Seoul++ 4-3 -](https://carbon.s-ul.eu/iOkDqSKO)
 ![](https://i.imgur.com/OYYJjb4.jpeg)
 
-
+# [- Delis & Aristia(Edit) -](https://carbon.s-ul.eu/rDHRtcfO)
+![](https://i.imgur.com/EHQPBsH.jpeg)
 
 
