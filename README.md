@@ -96,5 +96,9 @@
 #### [Alt link if dead](https://carbon.s-ul.eu/ILc8F3eb)
 ![](https://i.imgur.com/H7WU9n8.jpeg)
 
+# [- Dialga & Seoul++ 4-3 -](https://carbon.s-ul.eu/iOkDqSKO)
+![](https://i.imgur.com/OYYJjb4.jpeg)
+
+
 
 
