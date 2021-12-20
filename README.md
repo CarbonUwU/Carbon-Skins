@@ -102,4 +102,6 @@
 # [- Delis & Aristia(Edit) -](https://carbon.s-ul.eu/rDHRtcfO)
 ![](https://i.imgur.com/EHQPBsH.jpeg)
 
+# [- ExGon & niksepon 1.7 -](https://carbon.s-ul.eu/4Evvbw5R)
+![](https://i.imgur.com/BxStUoE.jpeg)
 
