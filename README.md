@@ -107,3 +107,6 @@
 
 # [- Red_Pixel & vv_idke_trail -](https://carbon.s-ul.eu/B9SFyeiS)
 ![](https://i.imgur.com/ppreJLM.jpeg)
+
+# [- fieryrage & fierymod v7 -](https://carbon.s-ul.eu/cBpvZmpj)
+![](https://shibe.host/VZ6aNbFysN0u/direct)
