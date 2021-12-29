@@ -114,3 +114,5 @@
 # [- GN+ -](https://carbon.s-ul.eu/oj3ZAuLr)
 ![](https://i.imgur.com/3ETw1SV.jpeg)
 
+# [- Delis & Aristia(Edit) -](https://carbon.s-ul.eu/N2y9owaR)
+![](https://i.imgur.com/sMuoCpG.jpeg)
