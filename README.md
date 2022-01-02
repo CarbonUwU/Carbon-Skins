@@ -116,3 +116,7 @@
 
 # [- Delis & Aristia(Edit) -](https://carbon.s-ul.eu/N2y9owaR)
 ![](https://i.imgur.com/sMuoCpG.jpeg)
+
+# [- -# bog -](https://carbon.s-ul.eu/xyQJWIMs)
+![](https://i.imgur.com/Tz1rqyo.jpg)
+
