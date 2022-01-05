@@ -122,3 +122,6 @@
 
 # [- MonkoEdit -](https://carbon.s-ul.eu/Y8u2xxgU)
 ![](https://i.imgur.com/Bw0TQgV.jpg)
+
+# [- Gasha & YUGEN FINAL-Wide -](https://carbon.s-ul.eu/o0h6YtYK)
+![](https://i.imgur.com/VFdD1tF.jpg)
