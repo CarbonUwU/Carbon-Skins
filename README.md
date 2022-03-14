@@ -1,5 +1,5 @@
 # **Carbon's cool skins list ✨**
-### Current skin folder :[ **90Go | 1.9K Skins** ](https://shibe.host/JvKx2GJX2c3D/direct.gif)
+### Current skin folder :[ **90Go | 1.9K Skins** ](https://shibe.host/JvKx2GJX2c3D/direct.gif) (i forgor 💀)
 <br>
 <br>
 
@@ -125,3 +125,6 @@
 
 # [- Gasha & YUGEN FINAL-Wide -](https://carbon.s-ul.eu/o0h6YtYK)
 ![](https://i.imgur.com/VFdD1tF.jpg)
+
+# [- Akcel 2017-08-10 -](https://dl.issou.best/ordr/skins/akcel_2017_08_10.osk)
+![](https://i.imgur.com/cWMWTdD.jpeg)
