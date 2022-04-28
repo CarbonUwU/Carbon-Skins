@@ -128,3 +128,6 @@
 
 # [- Akcel 2017-08-10 -](https://dl.issou.best/ordr/skins/akcel_2017_08_10.osk)
 ![](https://i.imgur.com/cWMWTdD.jpeg)
+
+# [- azr8 - nomod -](https://carbon.s-ul.eu/8ye62MPU)
+![](https://i.imgur.com/D0Ldrn2.jpg)
