@@ -131,3 +131,6 @@
 
 # [- azr8 - nomod -](https://carbon.s-ul.eu/8ye62MPU)
 ![](https://i.imgur.com/D0Ldrn2.jpg)
+
+# [- azr8bubbleman - white -](https://carbon.s-ul.eu/5TMdbJPm)
+![](https://i.imgur.com/eqzk1za.jpeg)
