@@ -134,3 +134,6 @@
 
 # [- azr8bubbleman - white -](https://carbon.s-ul.eu/5TMdbJPm)
 ![](https://i.imgur.com/eqzk1za.jpeg)
+
+# [- grayfump -](https://carbon.s-ul.eu/EIAJLWQc)
+![](https://i.imgur.com/LnTIV1U.jpg)
